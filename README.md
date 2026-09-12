@@ -43,7 +43,11 @@ $\color{#660000}{\text{𝐒-𝐀𝐅𝐊ㅤ‿‿ㅤ𝐖𝟐𝐈ㅤ‿‿ㅤ𝐃
 
 $\color{#910000}{\text{✦ ✦ ✦}}$
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31vrjbsbtvzylezv5uje2zhrd2le&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color_cover=false&bar_color=ff0000)](https://github.com/kittinan/spotify-github-profile)
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31vrjbsbtvzylezv5uje2zhrd2le&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=940000&bar_color_cover=false">
+  </a>
+</p>
 
 ![image alt](tumblr_bd22ae4c85c29fbbdb17e6ed6659ecdf_ab67a7a7_2048.png)
 
