@@ -8,7 +8,12 @@
 
 <br />
 
-<img src="Untitled473_20260820160814.png" width="300" height="300" />
+
+$\color{#910000}{\text{✦ ✦ ✦}}$
+
+<img src="Untitled473_20260820160814.png" width="400" height="400" />
+
+<br />
 
 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Kaushan+Script&size=25&duration=4985&pause=1000&color=880000&center=true&width=435&lines=%E2%9D%9D+Who+dares+to+touch+my+soul...+%E2%9D%9E" alt="Typing SVG" /></a>
