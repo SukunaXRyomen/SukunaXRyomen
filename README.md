@@ -6,8 +6,6 @@
 ![image alt](tumblr_bd22ae4c85c29fbbdb17e6ed6659ecdf_ab67a7a7_2048.png)
 <br />
 
-<img src="https://komarev.com/ghpvc/?username=Corintheuss&label=PATHETIC%20PEASANTS%20🍷&color=7A071E&style=for-the-badge" />
-
 <br />
 
 <img src="Untitled473_20260820160814.png" width="300" height="300" />
