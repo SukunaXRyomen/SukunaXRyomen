@@ -9,15 +9,15 @@
 <br />
 
 
-$\color{#F3F0EBFF}{\text{✦ ✦ ✦}}$
+$\color{#FFFFFF}{\text{✦ ✦ ✦}}$
 
 <img src="YOOOO COOL PFP I MADE!!!_20260915114952.png" width="400" height="400" />
 
 <br />
 
-$\color{#F3F0EBFF}{\text{✦ ✦ ✦}}$
+$\color{#FFFFFF}{\text{✦ ✦ ✦}}$
 
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=UnifrakturMaguntia&duration=3000&pause=100&color=F3F3F3&center=true&width=435&lines=%E2%8B%86+%E2%98%86+the+strongest+.++%E2%98%86+%E2%8B%86;%E2%8B%86+%E2%98%86+the+honored+one+.++%E2%98%86+%E2%8B%86;%E2%8B%86+%E2%98%86+satoru+gojo+.++%E2%98%86+%E2%8B%86" alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=UnifrakturMaguntia&duration=3000&pause=100&color=FFFFFF&center=true&width=435&lines=%E2%8B%86+%E2%98%86+the+strongest+.++%E2%98%86+%E2%8B%86;%E2%8B%86+%E2%98%86+the+honored+one+.++%E2%98%86+%E2%8B%86;%E2%8B%86+%E2%98%86+satoru+gojo+.++%E2%98%86+%E2%8B%86" alt="Typing SVG" /></a>
 
 ![image alt](tumblr_258ed941f4c6d36065b23afdd59166cb_2f1bb5a2_640.png)
 
@@ -39,14 +39,14 @@ $\color{#545454}{\text{𝔪𝔬𝔰𝔱𝔩𝔶 𝔞𝔣𝔨ㅤ‿‿ㅤ𝔴𝔥
 <br />
 <br />
 
-$\color{#F3F0EBFF}{\text{✦ ✦ ✦}}$
+$\color{#FFFFFF}{\text{✦ ✦ ✦}}$
 
 <img src="1000044368-removebg-preview.png" width="300" height="300" />
 
 <br />
 <br />
 
-$\color{#F3F0EBFF}{\text{✦ ✦ ✦}}$
+$\color{#FFFFFF}{\text{✦ ✦ ✦}}$
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
