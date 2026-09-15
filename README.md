@@ -34,6 +34,8 @@ $\color{#545454}{\text{𝔪𝔬𝔰𝔱𝔩𝔶 𝔞𝔣𝔨ㅤ‿‿ㅤ𝔴𝔥
 
 ![image alt](tumblr_258ed941f4c6d36065b23afdd59166cb_2f1bb5a2_640.png)
 
+★
+
 <br />
 <br />
 
