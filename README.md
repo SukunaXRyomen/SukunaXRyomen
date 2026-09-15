@@ -9,14 +9,14 @@
 <br />
 
 
-$\color{#910000}{\text{✦ ✦ ✦}}$
+$\color{#F3F0EBFF}{\text{✦ ✦ ✦}}$
 
 <img src="YOOOO COOL PFP I MADE!!!_20260915114952.png" width="400" height="400" />
 
 <br />
 
 
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Kaushan+Script&size=25&duration=4985&pause=1000&color=880000&center=true&width=435&lines=%E2%9D%9D+Who+dares+to+touch+my+soul...+%E2%9D%9E" alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=UnifrakturMaguntia&duration=3000&pause=100&color=F3F3F3&center=true&width=435&lines=%E2%8B%86+%E2%98%86+the+strongest+.++%E2%98%86+%E2%8B%86;%E2%8B%86+%E2%98%86+the+honored+one+.++%E2%98%86+%E2%8B%86;%E2%8B%86+%E2%98%86+satoru+gojo+.++%E2%98%86+%E2%8B%86" alt="Typing SVG" /></a>
 
 <img src="tumblr_3f50765be503c324db4fbe1817cb83c4_68c787c6_1280.png" width="600" height="600" />
 
