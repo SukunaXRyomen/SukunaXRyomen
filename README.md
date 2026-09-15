@@ -15,33 +15,36 @@ $\color{#F3F0EBFF}{\text{✦ ✦ ✦}}$
 
 <br />
 
+$\color{#F3F0EBFF}{\text{✦ ✦ ✦}}$
 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=UnifrakturMaguntia&duration=3000&pause=100&color=F3F3F3&center=true&width=435&lines=%E2%8B%86+%E2%98%86+the+strongest+.++%E2%98%86+%E2%8B%86;%E2%8B%86+%E2%98%86+the+honored+one+.++%E2%98%86+%E2%8B%86;%E2%8B%86+%E2%98%86+satoru+gojo+.++%E2%98%86+%E2%8B%86" alt="Typing SVG" /></a>
 
-<img src="tumblr_3f50765be503c324db4fbe1817cb83c4_68c787c6_1280.png" width="600" height="600" />
+![image alt](tumblr_c0a2f4ad26f5416e3f6516f16992c286_1a954b2e_640.png)
 
-$\color{#E6E6E6}{\text{𝖘𝖚𝖐𝖚𝖓𝖆‎ ㅤ / ‎ ‎ ‎ ‎ 𝖌𝖔𝖏𝖔ㅤㅤ︵ㅤㅤ𝐒𝐮𝐤𝐮𝐠𝐨 𝐏𝐢𝐥𝐥𝐞𝐝ㅤ.ㅤ𝖍𝖛𝖞 𝖌𝖔𝖏𝖔 𝖋𝖎𝖈𝖙𝖐𝖎𝖓}}$
+$\color{#E6E6E6}{\text{𝖘𝖚𝖐𝖚𝖓𝖆‎ ㅤ / ‎ ‎ ‎ ‎ 𝖌𝖔𝖏𝖔ㅤㅤ︵ㅤㅤ 𝔰𝔲𝔨𝔲𝔤𝔬 𝔭𝔦𝔩𝔩𝔢𝔡ㅤ.ㅤ𝖍𝖛𝖞 𝖌𝖔𝖏𝖔 𝖋𝖎𝖈𝖙𝖐𝖎𝖓}}$
 <br />
 <br />
 $\color{#A8A8A8}{\text{ℌ𝔢ㅤ.ㅤℌ𝔦𝔪   ㅤㅤ⋮  ㅤㅤ ℭ  ㅤ+  ㅤℌ  ㅤ𝔢𝔫𝔠}}$
 <br />
 <br />
-$\color{#696969}{\text{✦}}$
+$\color{#696969}{\text{‎ꫂ᭪݁}}$
 <br />
 <br />
 $\color{#545454}{\text{𝔪𝔬𝔰𝔱𝔩𝔶 𝔞𝔣𝔨ㅤ‿‿ㅤ𝔴𝔥𝔦𝔰𝔭𝔢𝔯 𝔱𝔬 𝔦𝔫𝔱 . 𝔠𝔲𝔡𝔡𝔩𝔢 𝖈𝖔𝖒𝖋ㅤ‿‿ㅤ𝖉𝖔 𝖓𝖔𝖙 𝖈𝖔𝖕𝖞 𝖕𝖔𝖓𝖎𝖊𝖘}}$
 
-<img src="tumblr_3f50765be503c324db4fbe1817cb83c4_68c787c6_1280.png" width="600" height="600" />
+![image alt](tumblr_c0a2f4ad26f5416e3f6516f16992c286_1a954b2e_640.png)
 
 <br />
 <br />
 
-<img src="image-removebg-preview (7).png" width="100" height="100" />
+$\color{#F3F0EBFF}{\text{✦ ✦ ✦}}$
+
+<img src="1000044368-removebg-preview.png" width="300" height="300" />
 
 <br />
 <br />
 
-$\color{#910000}{\text{✦ ✦ ✦}}$
+$\color{#F3F0EBFF}{\text{✦ ✦ ✦}}$
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
