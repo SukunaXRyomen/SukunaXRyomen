@@ -3,7 +3,7 @@
 <img src="IMG_20260915_114422.png" width="1300" height="500">
 <br />
 
-![image alt](tumblr_bd22ae4c85c29fbbdb17e6ed6659ecdf_ab67a7a7_2048.png)
+![image alt](tumblr_c0a2f4ad26f5416e3f6516f16992c286_1a954b2e_640.png)
 <br />
 
 <br />
@@ -11,7 +11,7 @@
 
 $\color{#910000}{\text{✦ ✦ ✦}}$
 
-<img src="YOOOO COOL PFP I MADE!!! ❕_20260915114140" width="400" height="400" />
+<img src="YOOOO COOL PFP I MADE!!!_20260915114952.png" width="400" height="400" />
 
 <br />
 
@@ -49,7 +49,7 @@ $\color{#910000}{\text{✦ ✦ ✦}}$
   </a>
 </p>
 
-![image alt](tumblr_bd22ae4c85c29fbbdb17e6ed6659ecdf_ab67a7a7_2048.png)
+![image alt](tumblr_c0a2f4ad26f5416e3f6516f16992c286_1a954b2e_640.png)
 
 <img src="IMG_20260915_114437.png" width="1300" height="500">
 
